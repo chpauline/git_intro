@@ -1,3 +1,2 @@
 Pauline Cheng
-7
 
